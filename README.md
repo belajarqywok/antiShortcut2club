@@ -1,3 +1,3 @@
 # antiShortcut2club
 _**for windog**_<br>
-buangan gabut
+untuk fd yg ke shortcut
